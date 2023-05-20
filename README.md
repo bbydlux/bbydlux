@@ -39,6 +39,7 @@ Follow:
 <img align="center" alt="Java" src="https://img.shields.io/badge/Java-ED8B00?style=for-the-badge&logo=openjdk&logoColor=white" /><img align="center" alt="Audacity" src="https://img.shields.io/badge/Audacity-0000CC?style=for-the-badge&logo=audacity&logoColor=white" /><img align="center" alt="Spotify" src="https://img.shields.io/badge/Spotify-1ED760?&style=for-the-badge&logo=spotify&logoColor=white" />
 </div>
 
+![black-sasuke-sharingan-ju15j5p82u0wmzq2](https://github.com/bbydlux/bbydlux/assets/133933832/f0598703-1ed5-406b-b7e8-e5bd851f48f2)
 
 
 <br/>
