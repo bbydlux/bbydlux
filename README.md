@@ -23,7 +23,7 @@ Follow:
   •📏 170 cm tall;<br/>
   •🎮 I do play valorant a lot;   
   •🛹 I like to skate;<br/>
-  •📖 Enjoy reading (specially mangas);<br/>
+  •📖 Enjoy reading (specifically mangas);<br/>
   •スカー藩主, real scarlxrd fan.
 <br/>
 <br/>
