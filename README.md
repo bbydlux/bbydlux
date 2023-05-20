@@ -94,7 +94,15 @@ Follow:
 <br/>
 <br/>
     
-    ![aniyuki-black-and-white-anime-21](https://github.com/bbydlux/bbydlux/assets/133933832/28e54514-4329-4a51-b462-c2814af8353d)
+    
+
+
+
+https://github.com/bbydlux/bbydlux/assets/133933832/5d9586ea-947e-4bb6-9f18-4bf3895abb3b
+
+
+
+
 
  
  
