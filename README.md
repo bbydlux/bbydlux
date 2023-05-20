@@ -13,37 +13,17 @@ Follow:
 
 
     
-•📚 Currently studying at São Lucas;
- <br/>
-    <br/>
-•☕ Just started learning Java;
-<br/>
-    <br/>
+•📚 Currently studying at São Lucas;   
+•☕ Just started learning Java;<br/>
    • 💬 Fluent in enlgish, you can talk to me;
     <br/>
+    •🖥️ True gamer, PC only;
     <br/>
-    •🖥️ True gamer, PC only;<br/><br/>
-    •👤17 years old;
- <br/>
- <br/>
-
-  •📏 170 cm tall;<br/><br/>
-
- 
- 
-
+    •👤17 years old;<br/>
+  •📏 170 cm tall;<br/>
   •🎮 I do play valorant a lot;   
- 
- <br/>
-
-  •🛹 I like to skate;
- 
- <br/>
-
-  •📖 Enjoy reading (specially mangas);
-<br/>
- <br/>
- 
+  •🛹 I like to skate;<br/>
+  •📖 Enjoy reading (specially mangas);<br/>
   •スカー藩主, real scarlxrd fan.
 <br/>
 <br/>
