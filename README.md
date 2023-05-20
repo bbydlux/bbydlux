@@ -1,4 +1,4 @@
-
+# <center> スカー藩主
 
 # <center> Hey, i'm Vitor 🥷🏿
 ## <center> Brazilian teenager learning how to code.
@@ -47,10 +47,37 @@ Follow:
 
 <br/>
 <br/>
-
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
 
  
- ## Extra stuff
+ ### Extra stuff
+ <br/>
+ <br/>
 
-   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=bbydlux&show_icons=true&theme=dark)
+ ### 👤17 years old;
+ 
+ <br/>
+
+ ### 📏 170 cm tall;
+ 
+ <br/>
+
+ ### 🎮 I do play valorant a lot;
+ 
+ <br/>
+
+ ### 🛹 I like to skate;
+ 
+ <br/>
+
+ ### 📖 Enjoy reading (specially mangas);
+
+ <br/>
+ 
+ ### スカー藩主, real scarlxrd fan.
  
