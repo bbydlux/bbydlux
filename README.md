@@ -57,27 +57,27 @@ Follow:
  
  ### Extra stuff
  <br/>
- <br/>
-
- ### 👤17 years old;
  
- <br/>
 
- ### 📏 170 cm tall;
+  👤17 years old;
  
- <br/>
-
- ### 🎮 I do play valorant a lot;
  
- <br/>
 
- ### 🛹 I like to skate;
+  📏 170 cm tall;
  
- <br/>
-
- ### 📖 Enjoy reading (specially mangas);
-
- <br/>
  
- ### スカー藩主, real scarlxrd fan.
+
+  🎮 I do play valorant a lot;
+ 
+ 
+
+  🛹 I like to skate;
+ 
+ 
+
+  📖 Enjoy reading (specially mangas);
+
+ 
+ 
+  スカー藩主, real scarlxrd fan.
  
